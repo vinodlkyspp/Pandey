@@ -1,2 +1,2 @@
-# Pandey
-A Social Entrepreneur 
+# Pathshala
+A Social Entreprise 
