@@ -24,4 +24,9 @@ We want to address the issue of schools not being able to function as a school, 
 How the idea of Pathshala emerged-Entrepreneurial journey: Three master degree students Vinod (Indian), Ita (Malaysia) and Yingfei (China) from Lee Kuan Yew School of Public Policy, National University of Singapore had a different life and professional experience in India, Malaysia, and China. One point in common brought them together , ll three had seen challenges, although different, with children  attending school. Open-17 a global competition  brought Vinod, Ita and Yingfei, together to work on SDG-4-Quality Education. Collecting data on schools in Asia and hearing each other’s story brought attention on the Indian (Vinod's’)  story. The school he attended at his initial childhood had hardly anything to sit and any board for the teacher to teach. his pushed him  to dropout from the school for about a year.  Three of them decided to work on Indian context and empowering schools through school supplies by connecting with increasing middle-class donors in India. **And that’s how Pathshala has emerged!**
 <br/>
 <br/>
+More on Pathshala: https://www.youtube.com/watch?v=oywwPCSgV4E
+<br/>
+<br/>
+Connect to us: pathshala.sdg@gmail.com 
+<br/>
 # Pathshala-Help kids to stay in school
