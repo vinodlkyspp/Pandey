@@ -1,3 +1,4 @@
+![](https://github.com/vinodlkyspp/Pathshala/raw/master/Pathshala%20logo%201.png)
 # Pathshala-Help kids to stay in school
  <br/>
  <br/>
